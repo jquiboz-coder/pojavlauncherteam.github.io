@@ -1,3 +1,5 @@
+juanquiroz123908@gmail.com 
+JUANQUIBOZ 648932
 
 # Welcome to the PojavLauncher Wiki!
 ____
